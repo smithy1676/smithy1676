@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @smithy1676
-- 👀 I’m interested in ...crypto 
-- 🌱 I’m currently learning ...coding 
+- 👀 I’m interested in ...learning 
+- 🌱 I’m currently learning ...coding...design 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...💙
 
